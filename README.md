@@ -5,7 +5,6 @@
 
 - 📫 How to reach me **munenejosphat@gmail.com**
 
-- 📄 Know about my experiences [www.linkedin.com/in/josphat-munene-7b7693240](www.linkedin.com/in/josphat-munene-7b7693240)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
